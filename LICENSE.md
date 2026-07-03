@@ -1,4 +1,4 @@
-#  
+#  Experience blox fruits like never before with blox fruits automatic Script, the #1 Script. Includes no cooldown and speed for unbeatable performance.
 
 
 
